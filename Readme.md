@@ -1,0 +1,5 @@
+Gözleme is a flatbread with a savory filling. It requires a lot of mastery to roll the dough to its required thinness to make the tastiest and crispiest gözleme.
+
+The name derives from the Turkish word “göz” meaning “compartment,” in reference to the pocket of dough in which the various fillings are sealed and cooked. The origins date back thousands of years in Anatolia. It is common to see gözleme vendors, often older women sitting in the markets and shop windows rolling their dough on large round wooden boards.
+
+It is a popular Turkish street food and a special part of the delicious Turkish breakfast. It can be filled with various fillings such as mashed potatoes, cheese and parsley, spinach and cheese, ground meat and onions. Gözleme goes very well with a glass of çay (Turkish black tea) or ayran, traditional Turkish yoğurt drink.
